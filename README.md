@@ -1,3 +1,3 @@
 # gamebrosyt
-Ofizelle GameBros Website.
+Offizelle GameBros Website.
 Kanal Link: https://www.youtube.com/channel/UCJszeIECG1T8D0e53WV3Liw
